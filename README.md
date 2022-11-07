@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Victoria Agafonova
+- 👀 I’m recruiter at Artelogic 
+- 📍 Locate in Lviv, Ukraine
+- 📫 Telegram @victoriaagafonova
